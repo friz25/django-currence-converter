@@ -1,3 +1,3 @@
 # django-currence-converter
 
-https://ibb.co/HTjThqZ
+https://i.ibb.co/gZxZ4JY/Exchange-App-Google-Chrome.jpg
